@@ -23,7 +23,7 @@ My schedule is
 5. sep
 6. lunch
 7. Yoga
-8. Eng
+8. English 
 
 
 
