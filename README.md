@@ -30,7 +30,7 @@ My schedule is
 
 My emal is ansonh4294@hstat.org  
 
-Thing i do on my free time is watach anime and Yt and sometime play games.
+Things I do on my free time are watach anime and Yt and sometime play games.
 
 My schedule is History then chemistry than spinish Math Sep Lunch Yoga English
 
